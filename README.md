@@ -10,7 +10,7 @@
 
 ---
 
-I'm Muhammed Abulkasem and I have recently completed a 3 moth program as a Trainee Software Developer at Northcoders and I'm now looking forward to start working as a Junior Software Developer▶️.
+I'm Muhammed Abulkasem and I have recently completed a 3 moth program as a Trainee Software Developer at Northcoders and I'm now looking forward to start working as a Junior Software Developer ▶️
 
 🥅 My goals:
 <ul>
